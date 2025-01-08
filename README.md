@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mohammadshuaib108@gmail.com**
 
-- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/1hoyaTuMQ0D2dq7SPiXnv_-FY7HkbznGA/view?usp=sharing)
+- 📄 Know about my experiences [Resume Link](https://drive.google.com/file/d/1iKTJfvQf0JhgEwYswj3vWAAs7eQN0M6g/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
